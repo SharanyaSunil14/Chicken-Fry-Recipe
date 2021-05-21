@@ -1,0 +1,1 @@
+Chicken, eggs, oil, salt, red chilly powder, turmeric powder, ginger-garlic paste, curd, lemon juice, oats.

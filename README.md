@@ -1,0 +1,1 @@
+This amazing recipe of chicken fry is of my own.This is one of the most delicious chicken recipe you would ever eat!. It will take some time but at the end it would be worth it. 
